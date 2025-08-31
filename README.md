@@ -1,3 +1,2 @@
 # webproject
-simple webpage
-Simple webpage try to more interactivity more.
+As a fressher i do a Simple webpage.Try to more interactivity .THANK YOU.
